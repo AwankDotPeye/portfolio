@@ -1,0 +1,2 @@
+# portfolio
+Pengenalan terlebih dahulu
